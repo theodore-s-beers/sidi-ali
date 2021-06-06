@@ -21,7 +21,7 @@ p {
 }
 
 .footnote-ref sup {
-  font-family: Lora, serif;
+  font-family: "Roboto Slab", serif;
   position: relative;
   top: -0.6em;
   vertical-align: baseline;
