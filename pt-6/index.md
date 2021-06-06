@@ -1,0 +1,240 @@
+---
+title: "_Mir'atü'l-Memalik_ (pt. 6 of 7)"
+---
+
+## XII. Our experiences in Kharezm and Deshti-Kipchak
+
+Toward the end of Shavval we left Khiva, and in five days we came to Kharezm,
+where I made the acquaintance of Dost Mohammed Khan and his brother
+Esh-Sultan.^[Dost Mohammed Khan, or simply Dost, who was then the ruler of
+Kharezm, and his brother Esh-Sultan were both sons of Budjuga Khan. Their rival
+to the throne was Hadjim Khan, who conquered both in turn and put them to
+death.] I visited the graves of Sheikh Nedjmeddin Kubera, Sheikh Ali Rametin,
+Sheikh Khalweti Yan, Imam Mohammed Bari'i, Sahib Kuduri, Djar Ullah Ulama, Molla
+Husein Kharezmi (the expounder of the Koran), Seid Ata, and Hekim Ata.
+
+When it was brought to my knowledge that the holy Sheikh Abdullatif had died in
+the city of Vezir, I could not rest until I had made a pilgrimage to his grave
+in company with a few friends. As this saint had been, moreover, my spiritual
+adviser in Sufism, I recited the whole Koran over his grave, to insure for him
+everlasting peace and bliss in Paradise. We also cooked a pilaf (a rice dish)
+and I prepared a Chronogram in commemoration of his death.
+
+Having received letters of commendation to the Manghit chiefs, from Hadji
+Mohammed Sultan, Timur Sultan, and Mahmud Sultan, the three sons of Agatai Khan,
+I returned to Kharezm, where Sheikh Sadr Alem, the envoy of Borak Khan, had
+meanwhile also arrived. Our party consisted besides ourselves of the wife of
+Sheikh Husein of Kharezm (daughter of Makhdum Aazam), the Sheikh's son, and a
+few Moslems; we traveled in carriages. Most of the company wore clothes of
+sheepskin, and they wanted us to do the same; for, they said, the Manghit^[The
+tribe of the Manghit, now belonging to the settled population of Khiwa, seems at
+that time still to have led a nomadic life, inhabiting the steppe between the
+Aral and the Caspian sea, now the home of the Kirghizes.] are worse even than
+the Ozbegs, and when they see strangers they invariably take them for
+Russians,^[The Nomads of Central Asia feared the Russians, for three years
+before that time (1554), Czar Ivan Wassilyewich had conquered Astrakhan.] which
+is synonymous to saying, they attack them. Thus we were compelled to don the
+outlandish garb (sheepskin); for, as I said to encourage my people: "A wise man
+follows the ways of the world and makes no trouble of it."
+
+Thus equipped, we started in the first days of Zilkaada. For more than a month
+we wandered about in the Deshti Kipchak^[By Deshti-Kipchak = the steppe of the
+Kipchaks, oriental writers understand the steppe situated between Kharezm and
+the Volga territory. Ibn Batuta likewise accomplished the distance between
+Kharezm (now Urghendj) and Saraidjik in 30 days.] (Kirghiz steppe). It was late
+in the autumn, and at that time of the year not a bird, not a wild ass (Onagre)
+can be seen, for there is not a vestige of verdure, not a drop of water, to be
+found. It was one interminable wilderness; one desert steppe.
+
+At last we came to a place called Sham, and shortly after to
+Saraidjik,^[Saraidjik, small place on the bank of the Ural, about one hour's
+distance from the Caspian Sea. Jenkinson in 1558 found the place still intact,
+but Pallas in the past century found only extensive ruins to indicate the
+place.] where we met some Hadjis and three of the Moslems which had been
+discharged at Samarkand. These latter were quite naked, and at sight of us they
+cried: "Whither go ye? Astrakhan is taken by the Russians, Ahmed Tchaush has
+fought in battle with them, and our Aga has been plundered by the troops of
+Arslan Mirza. The way is blocked; be warned and go back." In vain I quoted the
+lines:
+
+> "We are but poor beggars, what harm can befall us?\
+> For ten armed men can not rob one who has nothing."
+
+The rest of the company, especially the merchants, were not of my opinion; they
+proposed to delay a few days in Kharezm and await events, for: "Speed is from
+the devil and patience is from God."
+
+The envoy and the other Moslems were of the same mind, and so I reluctantly
+retraced my steps to Kharezm. The envoy returned to Samarkand, but all the rest
+remained in Kharezm, and when Dost Mohammed Khan, the ruler of Khiva, enquired
+of me by which route I now proposed to travel, I replied, "I will go by the way
+of Meshhed in Khorasan to Irak Adjemi, and from there to Bagdad." Thereupon the
+Khan said: "Remain here with us. In the Spring the Manghits seek their pastures;
+possibly the Russians may also quit the land by that time; and remember, the way
+to Bagdad is long."
+
+But I could not agree to this, and in support of my argument I quoted the
+proverb: "To the lover Bagdad is not far distant";^['Ashika Bagdad irak
+deyildir,' a well-known Turkish proverb.] so at last the Khan had to give in. He
+agreed to my departure, gave me a beautiful horse, and to my companions he gave
+the carriage in which we had traveled up to here.
+
+As regards our route, my first plan was to travel by the way of the Caspian Sea
+and Shirvan, but my companions did not like this, because the Musulman army
+which had lately broken up from Kaffa^[Ancient Theodosia, in the Crimea.] had
+become involved in a bloody war with Abdullah Khan, who would not permit any
+Turks to pass that way. Next we made inquiries about the roads of Circassia,
+past Demir-Kapu, but we heard that the Circassians had raised a revolt. There
+remained therefore only the way of Khorasan and Irak, and concerning these
+districts we learned that the Persian King was in perfect harmony with our
+glorious Padishah,^[At that time the King of Persia was Thamasp Shah, and it so
+happened that he was on friendly terms with Sultan Suleiman, for about this time
+a gorgeous embassy was sent by the ruler of the Ottoman empire to Kazvin, as
+recorded by Rauzat es-Safa in the VIIIth Book.] but that the Bey of Kizilbash
+(the Shiite officer) would probably prevent us from obtaining admittance to the
+Shah.
+
+I thought to myself, "Where God does not slay, man's attempts are but futile";
+moreover, "they who fear death should not venture on travels"; so after duly
+consulting the horoscope,^[Istikhare = Horoscope, is consulted by opening the
+Koran at hazard and the passage at which it opens gives the answer. Another way
+is by the throwing of dice, or by seizing the rosary (Tesbih) at hazard, when
+the even or uneven number of the beads decides the question.] and having made
+quite sure that there was no other way open to us, I decided to travel through
+Persia. The camels were hired and all was ready; I went to take leave of Dost
+Mohammed, the ruler of Khiva, who remarked casually that it was quite impossible
+for us to travel with firearms through the enemy's land. Thereupon we gave half
+of our arms to the Khan, and the other half to his younger brother Esh Sultan.
+We received a letter of commendation to Ali Sultan, a brother of Tin Sultan, and
+being well stocked with provisions and large skins for water, and trusting in
+God, we started on our journey to Kharezm in the beginning of the month
+Zilhidje.
+
+## XIII. Our fate In Khorasan {#ch-xiii}
+
+By divine grace we got safely across the Oxus^[This passage is of special
+geographical interest. As our author came from Kharezm on the left shore of the
+Oxus and crossed the river on his way to Khorasan, he refers here undoubtedly to
+the old course of this river, mentioned by Abulgazi. As the Oxus in its course
+downstream from Tchardjui reveals several old riverbeds, the direction here
+indicated by Sidi Ali must be one of the two courses which ran either from
+Hezaresp or from Khanka in a south-westerly direction into the Caspian Sea. Most
+likely it was the latter branch, as it was at that time the more important of
+the two, and according to Abulgazi, culture had reached a considerable height
+along its shores.] and encamped on the opposite shore, awaiting the arrival of
+the rest of our party. While there, the wife of Sheikh Husein sent me a message
+to say that she had a dream in which she had seen her father, the holy Makhdum
+Aazam, who had come from Vezir to Kharezm in company with another holy sage.
+Arrived in the town, he had thus addressed the people, who welcomed him
+joyfully: "Mir Sidi Ali has read the Koran over my grave in Vezir, and he has
+supplicated for my patronage. I have therefore come to help him and to lead him
+safely through Khorasan." This message filled me with joy. I struck camp next
+morning, and the day following we arrived in Dorum;^[This is Derum, frequently
+mentioned by Abulgazi as situated on the old road from Kharezm to Khorasan.] we
+passed through, unmolested by Mahmud Sultan, and proceeded to Bagwai,^[Bagwai,
+on the same road, but is now no longer marked on the map.] which place we also
+passed, without being hindered by Pulad Sultan, and came to Nesa.^[Nesa,
+frequently mentioned in the middle ages, situated in the North of Persia. Its
+ruins have been visited by many modern travellers in the neighbourhood of
+Ashkabad.]
+
+Here I found Ali Sultan, former Governor of Merw, and brother of Tin Sultan, to
+whom I offered my letter of commendation from Esh Sultan, and was allowed free
+passage, for everybody in these parts is devoted to his Majesty our Padishah.
+Thus we came to Bawerd (Abiwerd)^[Abiwerd is more correct; it is the modern
+Kahka, a station on the Trans-Caspian line.] and Tus, where I visited the graves
+of Imam Mohammed Hanifi and of the poet Firdusi; and on the first of Muharram of
+the year 964 I reached Meshhed-i-Khorasan, where I immediately made a pilgrimage
+to the grave of Imam Ali Musa Riza, the prince of Khorasan.
+
+When at sea, during the great storm some time ago, I had vowed to give a Tumen
+to the Imam; now I fulfilled my vow, and paid a Tumen to Mutawali (the overseer
+of the Mosque and Mausoleum); and I also paid a Tumen to the Seid. In Meshhed I
+found Ibrahim Mirza, the son of Behram Mirza, who occupied the throne there;
+also Suleiman Mirza the son of the Shah, and his Vekil (representative) called
+Kokche Khalipha, who entertained me at a banquet.
+
+In the course of our conversation, these gentlemen naturally wished to draw me
+into an argument upon the succession and sanctity of the Khaliphs Ali, Ebubekr,
+Omar, and Osman; but I acted upon the principle that silence is the best answer
+to give a fool, and I was silent. They pressed me, however, and I told them the
+story of Khodja Nasreddin, who was once asked to read the Koran in the Mosque,
+to which he had replied, "This is not the place." "And now," I said, "I have not
+come hither to argue with you, and I refuse to be questioned." It was with great
+difficulty that I at last rid myself of them.^[Curious enough, the same custom
+still prevails in Persia, for when I visited this land three hundred years
+later, disguised as an Osmanli, I had much to suffer from the indiscretion of
+the Shiite fanatics. By night and by day, on the march and at rest, it was
+always this same vexed question of the succession which had to be discussed.]
+
+One of the guests, unfortunately, was a miscreant, of the name of Ghazi Bey; he
+gave vent to his wrath in these words: "It is not seemly to send such people as
+these to the Shah. How do we know that they may not kill the men we give them as
+an escort, and then take flight? Very possibly they belong to the Ottomans that
+were sent to Borak Khan, or perhaps they are the bearers of a secret
+correspondence, and it might be advisable to search them."
+
+The Mirza (Ibrahim) approved of this plan, and the next morning 200 men in armor
+(kurdji) surrounded the kervanserai and took us prisoners. As the proverb says,
+"Those who cannot be caught by fair means, will be by foul play."
+
+We were each of us put in \[\[the\]\] charge of one of the guards; I was taken
+to the apartment of the Kokche Khalipha, with my two attendants. My horses were
+given into another man's charge, and my other effects were entrusted to
+Mutawali's keeping. They made us undress, and as it was winter we suffered much
+from the cold. The next day the Mirza took from me all my official papers, and
+sundry letters which I had received from different princes, and had them all put
+into a bag and sealed.
+
+When my companions saw this they trembled for their lives, but I comforted them
+with the sayings, "He who falls through no mistake of his will not shed tears,"
+and "Since fate has not forgotten to bring thee into this world, it will not
+forget to take thee out of it," and further, "Patience is the key to the final
+goal."
+
+So we calmly resigned ourselves to our fate. A little later on all were put in
+chains except myself; but I was strictly guarded by five men. This action of the
+Mirza troubled me not a little, and although I tried to make light of it, my
+heart was very heavy. I wrote a Ghazel to comfort myself, and with the inspiring
+thoughts suggested by it fresh in mind, I fell asleep; and being in a
+semi-conscious state, a divine inspiration in the form of a Murabba^[Murabba =
+Quatrain, a poem consisting of four-lined verses.] was vouchsafed to me, which I
+sent to Mutawali. This composition caused great excitement among the nobility of
+the place. About the same time one of the attendants of the Imam declared
+(whether it was true or feigned I cannot say) that in his dream he had seen the
+Khaliph Ali, who had charged him to go and set Mir Sidi Ali free. The news of
+this dream spread rapidly through the town and stirred up the people, whose
+sympathies were now all turned in my favour.
+
+Mutawali and Seid went to the Mirza and said: "This man came on a pilgrimage to
+visit the shrine of the Imam. He is under a vow, and desires to go to the Shah.
+As the Shah is on friendly terms with the Padishah of Turkey, it is not right
+that we should in any way trouble this pilgrim now in the Ashura days. If the
+man be a traitor, it is sure to come to light, for as the Koran says, 'A traitor
+is known by his countenance,' and there need be no further question of
+suspicion." These words of the wise man and of Seid did not lose their effect
+upon the Mirza. From my side I pointed out to him the unreliableness of the
+information upon which he had acted, and in order further to enlist his
+sympathies in my favour I sent him three poems; after which, partly for fear of
+the Shah, and partly regretting his rash deed, he gave us our liberty on the
+tenth of Ashura.
+
+He loaded me with presents and gave another banquet in my honor. He also
+restored to us our horses and our clothes; but many of my other possessions I
+never recovered. Four valuable books were taken, and the whole of my
+correspondence was conveyed by his armour-bearer,^[In the text kapchadji-bashi
+may mean chief keeper of the purse, from kapcha = purse, or chief armour-bearer,
+from kopcha = armour.] Ali Bey, and a Yassaul to the Shah in a sealed bag, the
+transport being effected on a barrow about the middle of Muharram of the said
+year. Traveling in the same caravan with us was one of the wives of the Shah and
+one of the wives of Behram Mirza, who were both returning from a pilgrimage to
+the shrine of the Imam. I made their acquaintance, and they treated us kindly.
+By my advice my companions comported themselves with due courtesy and modesty
+toward the retinue of these ladies, mindful of the saying: "The peace of two
+worlds depends on two things only, courtesy to friends and flattery to foes."
+
+Arrived in Nishabur, I visited the graves of Imamzade Mohammed Mahruk, and of
+Sheikh Attar (Ferideddin). Here I also met with Aga Kemal, the Vekil of
+Khorasan; who, however, did not interfere with us. In Sebzevar we met with a
+little hostility; but acting on the principle that "Barking dogs bite not," we
+soon got free from these firebrands and continued on our way.
