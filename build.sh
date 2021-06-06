@@ -13,5 +13,5 @@ fd index.md \
 	pandoc index-0.md \
 		-f markdown-auto_identifiers \
 		-M document-css=false \
-		-H ./head.html \
+		-H ./head-0.html \
 		-o index.html
