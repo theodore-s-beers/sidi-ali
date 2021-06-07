@@ -154,17 +154,18 @@ Khutbe and of coinage." This statement seemed to satisfy everybody, and we
 prayed together for the welfare of my Sovereign.
 
 One day the Emperor planned a little excursion on horseback to visit the graves
-of the holy Sheikhs of Delhi \[\[=correcting V's "Lahore"\]\], and I accompanied
-him. We visited the graves of Shah Kutbeddin, the Pir of Delhi, of Sheikh Nizam
-Weli, Sheikh Ferid Shekr-Ghendj, Mir Khosru Dehlevi, and Mir Husein Dehlevi.
-When the conversation turned upon the poetical works of Mir Khosru I quoted some
-of his best poems, and under their influence I conceived a most telling distich.
-I turned to the Emperor, saying, "It would be presumption on my part to measure
-my powers against those of Mir Khosru,^[Mir Khosru Dehlevi (i.e., from Delhi),
-one of the greatest poets of India, born 651 (1253), died 725 (1324). He wrote
-in Persian, which language had been introduced into India with the spread of
-Islam.] but he has inspired me, and I would fain recite my couplet before your
-Majesty." "Let us hear it," said Humayun, and I recited the following:
+of the holy Sheikhs of Delhi \[\[= correcting V's "Lahore"\]\], and I
+accompanied him. We visited the graves of Shah Kutbeddin, the Pir of Delhi, of
+Sheikh Nizam Weli, Sheikh Ferid Shekr-Ghendj, Mir Khosru Dehlevi, and Mir Husein
+Dehlevi. When the conversation turned upon the poetical works of Mir Khosru I
+quoted some of his best poems, and under their influence I conceived a most
+telling distich. I turned to the Emperor, saying, "It would be presumption on my
+part to measure my powers against those of Mir Khosru,^[Mir Khosru Dehlevi
+(i.e., from Delhi), one of the greatest poets of India, born 651 (1253), died
+725 (1324). He wrote in Persian, which language had been introduced into India
+with the spread of Islam.] but he has inspired me, and I would fain recite my
+couplet before your Majesty." "Let us hear it," said Humayun, and I recited the
+following:
 
 > "Truly great is only he who can be content with his daily bread.\
 > For happier is he than all the kings of the earth."
@@ -269,24 +270,24 @@ Ebul Maali,^[Ebul Maali, a Said from Kashgar who had entered the service of
 Humayun in 1551. He had rebelled against Ekber and had taken possession of
 Kabul, where he was afterwards defeated and imprisoned in Lahore. He died in
 1563 (Elphinstone p. 563).] who meanwhile had been taken prisoner, was confined
-in the castle of Lahore. In return for my Chronogram I received a Lakh
-\[\[=100,000 rupees\]\] for traveling expenses, and began to prepare for my
-journey with the four Begs. Amongst the many strange and wonderful things I saw
-in India I must make mention of a few. The unbelievers are called in Gujarat
-"Banian," and in India "Hindu." They do not belong to the
-Ehl-i-Kitab,^[Literally: Believers in the Book; these, therefore, have none of
-the four Sacred Books, _viz_. Koran, Tevrat, Gospels, and Psalms. Consequently
-they are Heathen.] and believe in fate (kadem-i-alem). When a man dies his body
-is burnt by the riverside. If the deceased leaves a wife past child-bearing she
-is not burnt; if, however, she is not past that age she is unconditionally
-burnt. If a wife of her own free will offers herself to be burnt, the relations
-celebrate the occasion with great rejoicings. Should the Mahommedans interfere
-and forcibly prevent the self-sacrifice, fate decrees that their king must
-die(?), and no other be raised. For this reason, officers of the Padishah are
-always present on such occasions, to prevent any act of violence.^[The burning
-of widows (Suttee) has in recent times been put a stop to by the English, and it
-is very characteristic that the Moguls had, long before that time, endeavoured
-to check the custom.]
+in the castle of Lahore. In return for my Chronogram I received a Lakh \[\[=
+100,000 rupees\]\] for traveling expenses, and began to prepare for my journey
+with the four Begs. Amongst the many strange and wonderful things I saw in India
+I must make mention of a few. The unbelievers are called in Gujarat "Banian,"
+and in India "Hindu." They do not belong to the Ehl-i-Kitab,^[Literally:
+Believers in the Book; these, therefore, have none of the four Sacred Books,
+_viz_. Koran, Tevrat, Gospels, and Psalms. Consequently they are Heathen.] and
+believe in fate (kadem-i-alem). When a man dies his body is burnt by the
+riverside. If the deceased leaves a wife past child-bearing she is not burnt;
+if, however, she is not past that age she is unconditionally burnt. If a wife of
+her own free will offers herself to be burnt, the relations celebrate the
+occasion with great rejoicings. Should the Mahommedans interfere and forcibly
+prevent the self-sacrifice, fate decrees that their king must die(?), and no
+other be raised. For this reason, officers of the Padishah are always present on
+such occasions, to prevent any act of violence.^[The burning of widows (Suttee)
+has in recent times been put a stop to by the English, and it is very
+characteristic that the Moguls had, long before that time, endeavoured to check
+the custom.]
 
 Another curious custom is the use of tame gazelles in hunting A noose is lightly
 thrown over their antlers, and then they are driven to mix with the wild

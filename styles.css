@@ -27,8 +27,16 @@ p {
   vertical-align: baseline;
 }
 
+.footnotes {
+  font-size: 90%;
+}
+
+.footnotes hr {
+  margin-top: 2rem;
+}
+
 .footnotes p {
-  line-height: 1.3;
+  line-height: 1.4;
 }
 
 .return-link {
