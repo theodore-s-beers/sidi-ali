@@ -1,12 +1,12 @@
 ---
-title:
-  "The Travels and Adventures of the Turkish Admiral Sidi Ali Reïs in India,
-  Afghanistan, Central Asia, and Persia, during the Years 1553--1556"
+title: "_Mir'atü'l-Memalik_"
 ---
 
-### Translated from the Turkish, with Notes, by A. Vambéry
+### The Travels and Adventures of the Turkish Admiral Sidi Ali Reïs in India, Afghanistan, Central Asia, and Persia, during the Years 1553--1556
 
-### London, 1899
+#### Translated from the Turkish, with Notes, by A. Vambéry
+
+#### London, 1899
 
 [**Editor's introduction by Fran Pritchett**](./intro/)
 
