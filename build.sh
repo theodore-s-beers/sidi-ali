@@ -14,4 +14,5 @@ fd index.md \
 		-f markdown-auto_identifiers \
 		-M document-css=false \
 		-H ./head-0.html \
-		-o index.html
+		-o index.html &&
+	prettier --write .
